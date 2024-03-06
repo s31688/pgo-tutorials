@@ -1,2 +1,3 @@
-# pgo-tutorials
-Didactics purposes projects
+<agnieszka> <sopotnicka>
+<11c>
+<s31688>
